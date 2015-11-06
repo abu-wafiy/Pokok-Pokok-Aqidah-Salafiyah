@@ -11,6 +11,7 @@ PERKARA KEIMANAN YANG GLOBAL DARI POKOK-POKOK AQIDAH SALAFIYYAH
 - Syaikh Masyhur bin Hasan Alu Salman
 
 
+
 **Diperiksa dan Disepakati oleh :**
 
 Sejumlah Ulama dan Penuntut Ilmu
