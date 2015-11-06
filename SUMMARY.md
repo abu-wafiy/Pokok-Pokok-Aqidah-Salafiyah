@@ -1,6 +1,6 @@
 # DAFTAR ISI
 
-* [Kata Pengantar](README.md)
+* [Penerbit](README.md)
 * [Pendahuluan](intro.md)
 * [Pasal 1 Keimanan](chapter1.md)
 * [Pasal 2 Kekufuran](chapter2.md)
