@@ -1,7 +1,6 @@
 # PENDAHULUAN
 
-PERKARA KEIMANAN YANG GLOBAL DARI POKOK-POKOK AQIDAH SALAFIYYAH
-===============================================================
+**PERKARA KEIMANAN YANG GLOBAL DARI POKOK-POKOK AQIDAH SALAFIYYAH**
 
 **Penyusun :**
 - Syaikh Husain bin Audah al-Awaisyah
