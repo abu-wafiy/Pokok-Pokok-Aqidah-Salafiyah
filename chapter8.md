@@ -10,7 +10,6 @@
     - Negara (daulah)
     - Bendera (royah)
  
-
  - Kedua, Jihad Daf'u (defensif), hukumnya wajib 'ain bagi seluruh penghuni negeri yang diserang oleh musuh. Jika mereka tidak sanggup, maka penduduk di wilayah sekitarnya dari ahli tsughur (penjaga perbatasan) harus menolong mereka, demikian seterusnya.
 
 4. Jihad syar'i memiliki persiapan ('idad) syar'i yang harus dipenuhi. Ada dua macam persiapan, yaitu :
