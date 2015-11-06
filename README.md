@@ -1,5 +1,44 @@
 # PENDAHULUAN
 
+PERKARA KEIMANAN YANG GLOBAL DARI POKOK-POKOK AQIDAH SALAFIYYAH
+===============================================================
+
+**Penyusun :**
+- Syaikh Husain bin Audah al-Awaisyah
+- Syaikh Muhammad bin Musa Alu Nashr
+- Syaikh Salim bin Ied al-Hilaaly
+- Syaikh Ali bin Hasan al-Halaby al-Atsary
+- Syaikh Masyhur bin Hasan Alu Salman
+
+
+**Diperiksa dan Disepakati oleh :**
+
+Sejumlah Ulama dan Penuntut Ilmu
+
+**Diterbitkan oleh :**
+
+Markaz Imam Albany
+
+Divisi Pengajaran Manhaj dan Riset Ilmiah
+
+Amman - Yordania
+
+1421 H./2000 M.
+
+**Dialihbahasakan oleh :**
+
+Abu Salma bin Burhan al-Atsary
+
+**Dikoreksi oleh :**
+
+Ust. Abu ‘Athiyyah, Lc., M.Ag.
+
+**Ditulis ulang oleh :**
+
+Abu Wafiy Al Usmani Al Atsyi
+
+---
+
 *Dengan Nama Allah yang Maha Pengasih lagi Maha Penyayang*
 
 Segala Puji hanyalah milik Allah pemelihara semesta alam, Sholawat serta Salam semoga senantiasa tercurahkan kepada utusan termulia, keluarga beliau dan para sahabat seluruhnya.
@@ -12,19 +51,19 @@ Kami telah menyodorkan risalah ini untuk diperiksa oleh sejumlah ulama, para pen
 
 1. Fadhilatus Syaikh Sa'ad al-Hushain.
 2. Fadhilatul Ustadz Prof. DR. Syaikh Rabi' bin Hadi al-Madkholy.
-* Fadhilatus Syaikh Ali bin Hamd al-Khasyaan.
-* Fadhilatus Syaikh DR. Husain Alu Syaikh.
-* Fadhilatus Syaikh Ahmad bin Yahya an-Najmy.
-* Fadhilatus Syaikh DR. Muhammad al-Maghrawy.
-* Fadhilatus Syaikh DR. Wasiyullah Abbad.
-* Fadhilatus Syaikh Muhammad bin Umar Bazmul.
-* Fadhilatus Syaikh DR. Khalid al-Anbary.
-* Fadhilatus Syaikh Usamah bin Abdul Lathif al-Qushy.
-* Fadhilatus Syaikh Abul Hasan al-Ma'riby.
-* Fadhilatus Syaikh Muhammad bin Hadi al-Madkholy.
-* Fadhilatus Syaikh 'Abdus Salam bin Barjas Alu Abdil Karim (Rahimahullahu, Pent.).
-* Fadhilatus Syaikh Husain 'Asyasy.
-* Fadhilatus Syaikh Mahmud 'Athiyyah.
+3. Fadhilatus Syaikh Ali bin Hamd al-Khasyaan.
+4. Fadhilatus Syaikh DR. Husain Alu Syaikh.
+5. Fadhilatus Syaikh Ahmad bin Yahya an-Najmy.
+6. Fadhilatus Syaikh DR. Muhammad al-Maghrawy.
+7. Fadhilatus Syaikh DR. Wasiyullah Abbad.
+8. Fadhilatus Syaikh Muhammad bin Umar Bazmul.
+9. Fadhilatus Syaikh DR. Khalid al-Anbary.
+10. Fadhilatus Syaikh Usamah bin Abdul Lathif al-Qushy.
+11. Fadhilatus Syaikh Abul Hasan al-Ma'riby.
+12. Fadhilatus Syaikh Muhammad bin Hadi al-Madkholy.
+13. Fadhilatus Syaikh 'Abdus Salam bin Barjas Alu Abdil Karim (Rahimahullahu, Pent.).
+14. Fadhilatus Syaikh Husain 'Asyasy.
+15. Fadhilatus Syaikh Mahmud 'Athiyyah.
 
 
 Semoga Allah mereka semua membalas dengan kebaikan.
