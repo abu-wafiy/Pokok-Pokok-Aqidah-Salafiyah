@@ -11,6 +11,7 @@ POKOK-POKOK AQIDAH SALAFIYAH
 * Syaikh Ali bin Hasan al-Halaby al-Atsary
 * Syaikh Masyhur bin Hasan Alu Salman
 
+
 **Diperiksa dan Disepakati oleh :**
 
 Sejumlah Ulama dan Penuntut Ilmu
