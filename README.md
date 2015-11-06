@@ -11,7 +11,7 @@ Kami selaku penuntut ilmu, memandang perlu menulis pokok-pokok ilmiah yang seder
 Kami telah menyodorkan risalah ini untuk diperiksa oleh sejumlah ulama, para penuntut ilmu dan para du'at terbaik di seluruh dunia, dengan mengharapkan kritikan-kritikan dan masukan-masukan yang membangun. Merekapun sudi membaca dan mengoreksinya, dengan Fadhilah (Karunia) dan Taufiq Allah, kami memetik manfaat dari pengarahan mereka. Diantara mereka tersebut adalah :
 
 1. Fadhilatus Syaikh Sa'ad al-Hushain.
-* Fadhilatul Ustadz Prof. DR. Syaikh Rabi' bin Hadi al-Madkholy.
+2. Fadhilatul Ustadz Prof. DR. Syaikh Rabi' bin Hadi al-Madkholy.
 * Fadhilatus Syaikh Ali bin Hamd al-Khasyaan.
 * Fadhilatus Syaikh DR. Husain Alu Syaikh.
 * Fadhilatus Syaikh Ahmad bin Yahya an-Najmy.
