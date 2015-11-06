@@ -1,6 +1,7 @@
 # PASAL 6: MURJI'AH
 
 1. Murji'ah ada kelompok yang sesat, madzhabnya jelek dan bathil -tidak berada di atas manhaj Sunnah dan Ahlus Sunnah-. Akan tetapi kami tidak mengeluarkan mereka dari agama sebagaimana dinyatakan oleh Imam Ahmad dan dinukil Syaikhul Islam dari beliau sebagai ketetapan beliau di sejumlah tempat.
+
 2. Murji'ah ada tiga jenis :
    - Jahmiyah Murji'ah yang berpendapat bahwa Iman sebatas pengetahuan (ma'rifat) belaka. Sebagian Imam Salaf mengkafirkan mereka.
    - Karramiyyah yang membatasi keimanan hanya dengan ucapan lisan saja tanpa perlu diyakini dalam hati.
