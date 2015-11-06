@@ -11,7 +11,6 @@
    - Hukum Mu'awwal (yang ditakwil), yaitu ijtihad para Imam Mujtahid yang bisa benar dan salah. Akan mendapatkan satu ganjaran (jika salah) dan dua ganjaran (jika benar).
    - Hukum Mubaddal (yang diganti), yaitu hukum dengan selain hukum Allah, dimana pelakunya bisa jadi kafir, dhalim atau fasiq. Sebagaimana dinyatakan oleh Syaikhul Islam Ibnu Taimiyah dan muridnya Imam Ibnul Qoyim al-Jauziyah.
 
-
 5. Orang yang berhukum dengan selain hukum Allah dilihat keadaannya:
    - Jika ia meninggalkan hukum Allah dengan meyakini kehalalannya atau meng-anggapnya pilihan (yang boleh diterima boleh tidak, pent.) atau beranggapan hukum Allah tidak relevan untuk mengatur urusan manusia atau berpendapat hukum selain hukum Allah lebih layak untuk manusia, maka dia telah kafir keluar dari agama, setelah terpenuhinya syarat dan hilangnya penghalang, menurut fatwa para ulama yang mendalam pemahaman agamanya.
    - Jika ia meninggalkan berhukum dengan hukum Allah karena mengikuti hawa nafsu atau demi kepentingan (duniawinya), atau karena takut atau takwil, dengan tetap berikrar dan meyakini kesalahan dan penyelewengannya, maka ia jatuh ke dalam kufur kecil yang dosanya jauh lebih besar dari minum khamr. Akan tetapi, kekufurannya tidak sampai meng-kafirkannya (kufrun duna kufrin) sebagaimana telah ditetapkan oleh para Imam dan Ulama salaf.
