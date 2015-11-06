@@ -9,4 +9,5 @@
 * [Pasal 6 Murji'ah](chapter6.md)
 * [Pasal 7 Khowarij](chapter7.md)
 * [Pasal 8 Jihad fi Sabilillah](chapter8.md)
+* [Penutup](chapter9.md)
 
