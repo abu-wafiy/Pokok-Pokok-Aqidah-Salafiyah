@@ -1,3 +1,3 @@
 # Summary
 
-* [Pendahuluan](chapter1.md)
+* [Pasal 1 Keimanan](chapter1.md)
