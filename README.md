@@ -12,6 +12,7 @@ PERKARA KEIMANAN YANG GLOBAL DARI POKOK-POKOK AQIDAH SALAFIYYAH
 
 
 
+
 **Diperiksa dan Disepakati oleh :**
 
 Sejumlah Ulama dan Penuntut Ilmu
