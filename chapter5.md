@@ -1,10 +1,5 @@
-# PASAL 6: MURJI'AH
+# PASAL 5: WALA' DAN BARO' (LOYALITAS DAN BERLEPAS DIRI)
 
-1. Murji'ah ada kelompok yang sesat, madzhabnya jelek dan bathil -tidak berada di atas manhaj Sunnah dan Ahlus Sunnah-. Akan tetapi kami tidak mengeluarkan mereka dari agama sebagaimana dinyatakan oleh Imam Ahmad dan dinukil Syaikhul Islam dari beliau sebagai ketetapan beliau di sejumlah tempat.
-2. Murji'ah ada tiga jenis :
-a. Jahmiyah Murji'ah yang berpendapat bahwa Iman sebatas pengetahuan (ma'rifat) belaka. Sebagian Imam Salaf mengkafirkan mereka.
-b. Karramiyyah yang membatasi keimanan hanya dengan ucapan lisan saja tanpa perlu diyakini dalam hati.
-c. Murji'ah Fuqoha' yang berpendapat bahwa iman itu keyakinan dengan hati dan ucapan dengan lisan, namun mereka mengeluarkan amalan dari yang namanya keimanan.
-Mereka semua di atas kesesatan walaupun tingkat kesesatannya berbeda-beda, sebagaimana yang telah diperinci oleh Syaikhul Islam -rahimahullahu-.
-3. Termasuk pendapat jelek mereka yang terbentuk dari sebelumnya dan dari beragamnya kelompok-kelompok mereka, bahwasanya iman itu tidak bertambah tidak pula berkurang. Barang siapa yang mengatakan 'sesungguhnya iman itu bertambah dan berkurang, bertambah dengan ketaatan dan berkurang dengan kemaksiatan. Iman itu berupa ucapan, amalan dan keyakinan', maka dia telah berlepas diri dari pemikiran murji'ah seluruhnya, dari awal sampai akhir, sebagaimana ucapan Imam Ahmad bin Hanbal; dan Imam Barbahari serta selain mereka.
-4. Pelaku kemaksiatan baik kecil maupun besar masih termasuk ummat Islam (Ahlu Millah), dan mereka berada di bawah kehendak Allah hukuman dan siksanya, sebagaimana firman Allah Ta'ala, "Sesungguhnya Allah tidak mengampuni kesyirikan namun ia mengampuni selain kesyirikan siapa saja yang dikehendaki-Nya."
+1. Kami memandang bahwa wala' di tengah-tengah kaum muslimin -dan wala' terhadap mereka- mengandung ketaatan kepada Allah dan Rasul-Nya Shallallahu 'alaihi wa Sallam dan termasuk manhaj salaf yang dipercaya serta jalannya para ulama Robbaniyun. Kami juga memandang bahwa baro' dari setiap orang yang menyelisihi syariat berdasarkan tingkat penyelewengannya baik besar maupun kecil, baik dalam masalah aqidah mapun hukum, dan sunnah atau bid'ah.
+2. Tidak boleh khuruj/keluar dari ketaatan (memberontak) dari penguasa kaum muslimin, tidak boleh pula menentang dan melakukan revolusi terhadap mereka, kecuali hingga kita melihatnya melakukan kekufuran yang nyata dan kita memiliki bukti yang nyata dari Allah atas kekufurannya.
+Jika hal demikian benar-benar terjadi -yakni penguasa melakukan kekufuran yang nyata- maka sesungguhnya justifikasi dan penentuannya dikembalikan kepada orang yang mendalam ilmunya dari para ulama kita yang terpercaya kekokohan agamanya, dimana mereka lebih bisa melihat tarjih antara masalahat dan madharatnya, yang akan menghilangkan kemunkaran tidak malah menambahnya, tanpa dibakar semangat yang menggelora.
