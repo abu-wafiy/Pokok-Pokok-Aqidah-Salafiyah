@@ -29,7 +29,7 @@ Kami telah menyodorkan risalah ini untuk diperiksa oleh sejumlah ulama, para pen
 
 Semoga Allah mereka semua membalas dengan kebaikan.
 
-Karena itu pula, kami juga memutuskan untuk menyodorkan risalah ini kepada Samahatus Syaikh Abdul Aziz bin Abdillah Alu Syaikh -Nafa'allahu bihi-, beliau adalah seorang Mufti Umum, Ketua Lembaga Ulama Besar (Hai`ah Kibaril Ulama') dan Komite Tetap Bidang Fatwa (Lajnah Da`imah lil Iftaa') serta Ketua Umum Bidang Penelitian Ilmiah dan Fatwa (Idarah al-Buhuts al-Ilmiyyah wal Ifta').
+Karena itu pula, kami juga memutuskan untuk menyodorkan risalah ini kepada Samahatus Syaikh Abdul Aziz bin Abdillah Alu Syaikh -Nafa'allahu bihi-, beliau adalah seorang Mufti Umum, Ketua Lembaga Ulama Besar (Hai'ah Kibaril Ulama') dan Komite Tetap Bidang Fatwa (Lajnah Da'imah lil Iftaa') serta Ketua Umum Bidang Penelitian Ilmiah dan Fatwa (Idarah al-Buhuts al-Ilmiyyah wal Ifta').
 
 Risalah ini telah dikirim via surat pos resmi melalui perantara Fadhilatus Syaikh Sa'ad al-Hushain -Hafidhahullahu-, beliau adalah seorang Penasehat Agama Arab Saudi di Yordania. Kami telah menunggu hingga hampir 2 bulan dengan harapan beliau membalas surat yang kami kirimkan...
 
