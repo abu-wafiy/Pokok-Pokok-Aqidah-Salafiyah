@@ -41,6 +41,8 @@ Abu Wafiy Al Usmani Al Atsyi
 
 ---
 
+
+
 *Dengan Nama Allah yang Maha Pengasih lagi Maha Penyayang*
 
 Segala Puji hanyalah milik Allah pemelihara semesta alam, Sholawat serta Salam semoga senantiasa tercurahkan kepada utusan termulia, keluarga beliau dan para sahabat seluruhnya.
@@ -68,7 +70,7 @@ Kami telah menyodorkan risalah ini untuk diperiksa oleh sejumlah ulama, para pen
 15. Fadhilatus Syaikh Mahmud 'Athiyyah.
 
 
-Semoga Allah mereka semua membalas dengan kebaikan.
+Semoga Allah membalas mereka semua dengan kebaikan.
 
 Karena itu pula, kami juga memutuskan untuk menyodorkan risalah ini kepada Samahatus Syaikh Abdul Aziz bin Abdillah Alu Syaikh -Nafa'allahu bihi-, beliau adalah seorang Mufti Umum, Ketua Lembaga Ulama Besar (Hai'ah Kibaril Ulama') dan Komite Tetap Bidang Fatwa (Lajnah Da'imah lil Iftaa') serta Ketua Umum Bidang Penelitian Ilmiah dan Fatwa (Idarah al-Buhuts al-Ilmiyyah wal Ifta').
 
