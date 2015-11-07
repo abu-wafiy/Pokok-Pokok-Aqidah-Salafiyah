@@ -12,7 +12,7 @@
 
    Dan barang siapa yang tidak mengkafirkan orang yang meninggalkan sholat karena malas, tidak sepatutnya melempar tuduhan kepada orang yang berbeda dengannya sebagai khowarij.
 
-5. Meninggalkan sholat -bagi fihak yang mengkafirkannya di dunia- termasuk kufur besar yang menyeret pelakunya sebagai kafir pula di akhirat.
+5. Meninggalkan sholat -bagi pihak yang mengkafirkannya di dunia- termasuk kufur besar yang menyeret pelakunya sebagai kafir pula di akhirat.
 
    Adapun pengkafiran orang yang meninggalkan sholat sebagai kufur akbar di dunia setelah memenuhi syarat-syaratnya dan menghilangkan penghalang kekafiran, dan menjadikan orang yang meninggalkan sholat pada waktu yang bersamaan 'di bawah kekuasaan Allah di akhirat', jika orang yang meninggalkan sholat itu ikhlas dengan ucapannya 'Laa ilaaha illallah' di dunia, maka pendapat ini adalah pendapat yang mengada-ada (bid'ah), tidaklah termasuk dari pendapatnya Ahlus Sunnah sedikitpun.
 
