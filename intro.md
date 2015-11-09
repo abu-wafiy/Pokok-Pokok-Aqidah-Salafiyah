@@ -1,10 +1,5 @@
 # PENDAHULUAN
-![](dcrLxxqc9.jpeg)
-
-![alt text][logo]
-
-[logo]: https://github.com/adam-p/markdown-here/raw/master/src/common/images/icon48.png "Logo Title Text 2"
-
+![](bismillah.jpeg)
 
 *Dengan Nama Allah yang Maha Pengasih lagi Maha Penyayang*
 
