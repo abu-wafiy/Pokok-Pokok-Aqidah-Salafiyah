@@ -24,8 +24,7 @@ Kami telah menyodorkan risalah ini untuk diperiksa oleh sejumlah ulama, para pen
 12. Fadhilatus Syaikh Muhammad bin Hadi al-Madkholy.
 13. Fadhilatus Syaikh 'Abdus Salam bin Barjas Alu Abdil Karim (Rahimahullahu, Pent.).
 14. Fadhilatus Syaikh Husain 'Asyasy.
-15. Fadhilatus Syaikh Mahmud 'Athiyyah.
-
+15. Fadhilatus Syaikh Mahmud 'Athiyyah.  
 
 Semoga Allah membalas mereka semua dengan kebaikan.
 
