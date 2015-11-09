@@ -18,9 +18,9 @@
    - Kufur Nifaq (kemunafikan)
    - Kufur I'radh (berpaling)
    - Kufur Istihzaa' (penghinaan)
-   - dan Kufur Istihlal (penghalalan)
-   
-   Sebagaimana disebutkan oleh para Imam Ahli Ilmu, Syaikhul Islam dan muridnya Ibnul Qoyyim al-Jauziyah dan selainnya dari para Imam Sunnah -rahimahumullahu-
+   - dan Kufur Istihlal (penghalalan)  
+
+  Sebagaimana disebutkan oleh para Imam Ahli Ilmu, Syaikhul Islam dan muridnya Ibnul Qoyyim al-Jauziyah dan selainnya dari para Imam Sunnah -rahimahumullahu-
 
 7. Termasuk kufur amalan dan ucapan yang mengeluarkan dari agama secara dzatnya, yang tidak disyaratkan di dalamnya penghalalan hati, adalah perkara-perkara yang menunjukkan lawan dari keimanan ditinjau dari segala sisi, seperti mencela Allah Ta'ala, menghina Rasulullah Shallallahu 'alaihi wa Sallam, sujud kepada berhala, meletakkan mushaf di tempat-tempat najis, dan amalan-amalan yang serupa.
    Menjatuhkan hukum kafir ini kepada perseorangan secara spesifik adalah sebagaimana (menjatuhkan hukum kafir) pada amalan kafir lainnya, yaitu tidaklah serta merta dikafirkan kecuali syarat-syaratnya dipenuhi.
