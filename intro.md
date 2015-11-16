@@ -1,7 +1,8 @@
 # PENDAHULUAN
-![](bismillah.jpeg)
 
-*Dengan Nama Allah yang Maha Pengasih lagi Maha Penyayang*
+<div align="center"><img src="bismillah.jpeg"></div>
+
+<p align="center">*Dengan Nama Allah yang Maha Pengasih lagi Maha Penyayang*</p>
 
 Segala Puji hanyalah milik Allah pemelihara semesta alam, Sholawat serta Salam semoga senantiasa tercurahkan kepada utusan termulia, keluarga beliau dan para sahabat seluruhnya.
 
