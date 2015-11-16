@@ -2,7 +2,7 @@
 
 <div align="center"><img src="img/bismillah.jpeg"></div>
 
-<p align="center">*Dengan Nama Allah yang Maha Pengasih lagi Maha Penyayang*</p>
+<p align="center"><em>Dengan Nama Allah yang Maha Pengasih lagi Maha Penyayang</em></p>
 
 Segala Puji hanyalah milik Allah pemelihara semesta alam, Sholawat serta Salam semoga senantiasa tercurahkan kepada utusan termulia, keluarga beliau dan para sahabat seluruhnya.
 
