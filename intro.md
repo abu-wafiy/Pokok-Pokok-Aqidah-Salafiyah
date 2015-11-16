@@ -1,6 +1,6 @@
 # PENDAHULUAN
 
-<div align="center"><img src="bismillah.jpeg"></div>
+<div align="center"><img src="img/bismillah.jpeg"></div>
 
 <p align="center">*Dengan Nama Allah yang Maha Pengasih lagi Maha Penyayang*</p>
 
